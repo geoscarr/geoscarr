@@ -3,4 +3,12 @@
   ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=Knights.&style=for-the-badge)
 
   ㅤㅤㅤㅤㅤ
-                   ㅤThe Knighted.            
+                   ㅤThe Knighted.        
+
+OCS YOU MAY SEE ME AS :
+
+Astra ; Zolaris Sirius.
+
+Phasnair ; Alien Species Oc.
+
+Primrose Sirius ; Oc.
