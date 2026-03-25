@@ -16,5 +16,5 @@ I can come off as Rude. I do not mean to.
 
 other drivers im a fan of > george russell, liam lawson, lewis hamilton
 
-OSDD - 1 sys
+OSDD - 1 sys . no i won't give you info on us unless your extremely close.
 
