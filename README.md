@@ -16,6 +16,6 @@ other drivers im a fan of > oliver bearman, lewis hamilton
 
 yes i ignore whispers about my tier 4 unless its a friend or a friend of a friend
 
-theistic satanist
+atheistic satanist
 
 dni td/cd/tt/ct/cvt/cvd , please deadass respect this
