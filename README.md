@@ -10,6 +10,6 @@ pfp and banner may be different, i just like minecraft because its a hyperfixati
 
 f1 drivers i support : kimi antonelli, liam lawson, oscar piastri, george russel, isack hadjar and arvid lindblad
 
-most of the time i can come off as rude. im working on that.
+most of the time i can come off as rude. i have occasional mood swings that are bad at times.
 
 
