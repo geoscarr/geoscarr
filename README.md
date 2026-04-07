@@ -12,6 +12,6 @@ f1 drivers i support : kimi antonelli, liam lawson, oscar piastri, george russel
 
 most of the time i can come off as rude. i have occasional mood swings that are bad at times.
 
-i do not ship rp unless its a friend or someone i am directly close with. 
+i do not ship rp unless its a friend or someone i am directly close with. I am mostly in kingdoms, sometimes labs if im with my dear friend thats mentioned in my bio
 
 
