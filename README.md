@@ -14,6 +14,8 @@ most of the time i can come off as rude. i have occasional mood swings that are 
 
 i do not ship rp unless its a friend or someone i am directly close with. I am mostly in kingdoms, sometimes labs if im with my dear friend thats mentioned in my bio
 
-i have a hyperfixation on my oc that you usually see me as. which is my black n red knight oc. 
+i have a hyperfixation on my oc that you usually see me as. which is my black n red knight oc. or my black n red knight oc
+
+dni proshippers, darkshippers, anything problematic
 
 
