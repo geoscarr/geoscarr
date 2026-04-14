@@ -6,7 +6,7 @@
   ㅤㅤㅤㅤㅤ
                    ㅤ^_^        
 
-pfp and banner may be different, i really like DW
+multifandom ; F1, DW, SFAWTDE / DAWTDE , DC ( sometimes ) [ DW, F1 AND SFAWTDE are my biggest fixations ]
 
 f1 drivers i support : kimi antonelli, liam lawson, oscar piastri, george russel, isack hadjar and arvid lindblad + lewis hamilton
 
