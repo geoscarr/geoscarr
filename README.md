@@ -22,3 +22,7 @@ i am german / australian ! ^_^
 
 my skins all have ✦ and my github.
 
+
+<img width="1036" height="981" alt="Screenshot 2026-04-15 144448" src="https://github.com/user-attachments/assets/5f0c2f71-60e9-4278-bd4b-f1e15072fd26" />
+
+
