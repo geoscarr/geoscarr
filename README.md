@@ -20,7 +20,7 @@ dni proshippers, darkshippers, anything problematic
 
 i am german / australian ! ^_^
 
-my skins all have ✦ and my github.
+my skins all have ✦ and my github. | i also wear a wrist brace, please be patient as i can have slow typing at times.
 
 
 <img width="1036" height="681" alt="Screenshot 2026-04-15 144448" src="https://github.com/user-attachments/assets/5f0c2f71-60e9-4278-bd4b-f1e15072fd26" />
