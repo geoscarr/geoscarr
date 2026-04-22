@@ -24,6 +24,11 @@
 
 ✦ : I am mostly if not all the time offtab, So i will not see your whisper on main map.
 
-<img width="1036" height="681" alt="Screenshot 2026-04-15 144448" src="https://github.com/user-attachments/assets/5f0c2f71-60e9-4278-bd4b-f1e15072fd26" />
+<img width="1036" height="681" alt="тив 2" src="https://github.com/user-attachments/assets/2c1c2f3a-8b27-4761-9cc1-dfbf93c2ad89" />
 
+TIV 2  ^^^^^^^^^^^^^^^^^^^^^^^^^^^
+
+<img width="1036" height="681" alt="Storm chaser vehicle" src="https://github.com/user-attachments/assets/53f1eaf5-0f4d-4c46-b4dc-75633b3c73b2" />
+
+DOMINATOR 3 ^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^
 
