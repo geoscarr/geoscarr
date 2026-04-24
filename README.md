@@ -34,3 +34,5 @@ TIV 2  ^^^^^^^^^^^^^^^^^^^^^^^^^^^
 
 DOMINATOR 3 ^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^
 
+FUNFACT: Did you know the 1996 Twister Movie influenced the jobs of many storm chasers? Said by Greg Johnson, A storm chaser.
+
