@@ -6,7 +6,7 @@
   ㅤㅤㅤㅤㅤ
                    ㅤ^_^   
 
-                   ✦ : DO NOT CONTINOUSLY FOLLOW IF I HAVE MOVED AWAY FROM YOU. IT MAKES ME UNCOMFY.
+                   ✦ : DO NOT CONTINOUSLY FOLLOW IF I HAVE MOVED AWAY FROM YOU. IT MAKES ME UNCOMFY. I DON'T GIVE A FUCK IF YOU ' RECOGNIZE ME. '
 
 ✦ : Multifandom ; F1, DW, SFAWTDE / DAWTDE , DC. ( Sometimes. ) [ DW, F1 AND SFAWTDE are my biggest fixations. ]
 
