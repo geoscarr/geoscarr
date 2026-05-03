@@ -14,9 +14,9 @@
 
 ✦ : Most of the time i can come off as rude. I have occasional mood swings that are bad at times.
 
-✦ : I do not ship rp unless its a friend or someone i am directly close with. I am mostly in kingdoms, sometimes labs if im with my dear friend thats mentioned in my bio
+✦ : I do not ship rp unless its a friend or someone i am directly close with. I am mostly in kingdoms, sometimes labs if im with my dear friend thats mentioned in my bio | My github user is a mix of my two favourite formula 1 drivers, Oscar Piastri and Andrea Kimi Antonelli. Hence Antastri.
 
-✦ : I have a hyperfixation on my oc that you usually see me as. Which is my Black and Teal Knight OC.
+✦ : I have a hyperfixation on my oc that you usually see me as.
 
 ✦ : dni Proshippers, Darkshippers, Anything Problematic.
 
