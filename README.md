@@ -1,4 +1,4 @@
-<img width="1036" height="681" alt="Untitled163_20260319001939" src="https://github.com/user-attachments/assets/e7a47030-735a-4380-a431-cd13925ec5f2" />
+<img width="1036" height="581" alt="New fav photo _3" src="https://github.com/user-attachments/assets/57a9225d-94d6-45f5-9c4d-5e59f53a58b3" />
 
   
   ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=Wins.&style=for-the-badge)
@@ -26,11 +26,11 @@
 
 ✦ : I am mostly if not all the time offtab, So i will not see your whisper on main map. I can also be AFK alot, depending on what i am doing so i may not see whispers.
 
-<img width="1036" height="681" alt="тив 2" src="https://github.com/user-attachments/assets/2c1c2f3a-8b27-4761-9cc1-dfbf93c2ad89" />
+<img width="1036" height="581" alt="тив 2" src="https://github.com/user-attachments/assets/2c1c2f3a-8b27-4761-9cc1-dfbf93c2ad89" />
 
 TIV 2  ^^^^^^^^^^^^^^^^^^^^^^^^^^^
 
-<img width="1036" height="681" alt="Storm chaser vehicle" src="https://github.com/user-attachments/assets/53f1eaf5-0f4d-4c46-b4dc-75633b3c73b2" />
+<img width="1036" height="581" alt="Storm chaser vehicle" src="https://github.com/user-attachments/assets/53f1eaf5-0f4d-4c46-b4dc-75633b3c73b2" />
 
 DOMINATOR 3 ^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^
 
